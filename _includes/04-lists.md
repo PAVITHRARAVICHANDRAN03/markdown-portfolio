@@ -6,3 +6,7 @@ _ 👶
 in order , tis is how much i like it.
 1. egg
 2. ice
+
+Here is a checklist for thinks I need to do today
+* record thinks
+* thinks
